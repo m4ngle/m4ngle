@@ -15,4 +15,7 @@ SWEET TOOTH (COCOA X YATTA) IDK THE ACTUAL SHIP NAME I JUST MADE THAT UP BUT THE
 ## ship dni i guess i dont know !!!  
 
 pls dont cuddle as dandy if like ur shipping dandy x whoever my pony is  
-i dont like ships with dandy due to my own hcs so id appreciate it if u just didnt!!
+i dont like ships with dandy due to my own hcs so id appreciate it if u just didnt!!  
+toodles/pebble/coal x whoever my pony is which is quite obvious but just in case
+  
+besides that i dont dislike any ships so feel free to reference anything around me!!
