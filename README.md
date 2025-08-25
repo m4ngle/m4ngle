@@ -8,4 +8,4 @@
   
 ⋆ im offtab a lot even if i dont have it in my name so im sorry if i dont respond fast or at all ON MY LIFE its not intentional  
 
-⋆ PLEASE dont talk to me about religion , sexual things , or pop music
+⋆ PLEASE dont talk to me about religion , sexual things (jokes are okay if we're close, just dont say them CONSTANTLY) , or pop music
