@@ -1,3 +1,5 @@
+![>_<](https://visitor-badge.laobi.icu/badge?page_id=audr3na.audr3na&left_color=black&right_color=purple&title=%3E_%3C)  
+
 # haii ! byi kinda thing i think !
   
 ⋆ i am VERY bad at talking to people,, not social at all but i love being around others </3  
