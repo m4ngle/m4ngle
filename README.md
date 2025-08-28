@@ -12,4 +12,4 @@
 
 ⋆ PLEASE dont talk to me about religion , sexual things (jokes are okay if we're close, just dont say them CONSTANTLY) , or pop music  
 
-ps i play ponytown on my school laptop.. sites such as patreon, atabook, and guns are blocked haha
+ps i play ponytown on my school laptop.. sites such as patreon, ata, and guns are blocked haha
