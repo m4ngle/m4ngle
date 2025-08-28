@@ -1,5 +1,7 @@
 ![>_<](https://visitor-badge.laobi.icu/badge?page_id=audr3na.audr3na&left_color=black&right_color=purple&title=%3E_%3C)  
-
+  
+![image](https://i.pinimg.com/736x/fd/65/0c/fd650ca3388438e21e1a8287c981085d.jpg)  
+(art by @cheezyx3 on pinterest!!)
 # haii ! byi kinda thing i think !
   
 ⋆ i am VERY bad at talking to people,, not social at all but i love being around others </3  
@@ -11,5 +13,7 @@
 ⋆ im offtab a lot even if i dont have it in my name so im sorry if i dont respond fast or at all ON MY LIFE its not intentional  
 
 ⋆ PLEASE dont talk to me about religion , sexual things (jokes are okay if we're close, just dont say them CONSTANTLY) , or pop music  
+
+⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy!
 
 ps i play ponytown on my school laptop.. sites such as patreon, ata, and guns are blocked haha
