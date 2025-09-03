@@ -1,7 +1,7 @@
-![>_<](https://visitor-badge.laobi.icu/badge?page_id=audr3na.audr3na&left_color=black&right_color=purple&title=%3E_%3C)  
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=e9a0d8&label=goats..)
   
-![image](https://i.pinimg.com/736x/fd/65/0c/fd650ca3388438e21e1a8287c981085d.jpg)  
-(art by @cheezyx3 on pinterest!!)
+![image](https://i.pinimg.com/736x/42/1e/97/421e975d727e5750d82f8b9b83c9ed7b.jpg)  
+(art by inklexk on twitter!)  
 # haii ! byi kinda thing i think !
   
 ⋆ i am VERY bad at talking to people,, not social at all but i love being around others </3  
