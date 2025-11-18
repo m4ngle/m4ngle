@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=e9a0d8&label=goats..)
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ff96c5&label=mangled)
   
 ![image](https://i.pinimg.com/736x/42/1e/97/421e975d727e5750d82f8b9b83c9ed7b.jpg)  
 (art by inklexk on twitter!)  
@@ -12,8 +12,8 @@
   
 ⋆ im offtab a lot even if i dont have it in my name so im sorry if i dont respond fast or at all ON MY LIFE its not intentional  
 
-⋆ PLEASE dont talk to me about religion , sexual things (jokes are okay if we're close, just dont say them CONSTANTLY) , or pop music  
+⋆ PLEASE dont talk to me about religion , sexual things ( besides jokes ) , or pop culture  
 
 ⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy!
 
-ps i play ponytown on my school laptop.. sites such as patreon, ata, and guns are blocked haha
+ps i play ponytown on my school laptop.. sites such as patreon, ata, and guns are blocked
