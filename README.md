@@ -1,19 +1,19 @@
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ff96c5&label=mangled)
   
-![image](https://i.pinimg.com/736x/42/1e/97/421e975d727e5750d82f8b9b83c9ed7b.jpg)  
-(art by inklexk on twitter!)  
+![image](https://i.pinimg.com/736x/14/93/67/1493673cfa6a5060f1f62c5d9a50a8db.jpg)  
+( art by p4rtypaws on pinterest ! )  
 # haii ! byi kinda thing i think !
   
-⋆ i am VERY bad at talking to people,, not social at all but i love being around others </3  
+⋆ i am VERY bad at talking to people , not social at all but i love being around others !  
   
-⋆ if im dry with responses IT DOESNT MEAN I HATE YOU AT ALL UR JUST REALLY AWESOME AND ITS INTIMIDATING  
+⋆ if im dry with responses IT DOESNT MEAN I HATE U AT ALL UR JUST REALLY AWESOME AND ITS INTIMIDATING  
   
-⋆ everyones free to add me esp if we've int/cuddled before i love having someone familiar to sit with (as long as ur okay with it)!!  
+⋆ everyones free to add me esp if we've int/cuddled before , i love having someone familiar to sit with ( as long as ur okay with it ) !  
   
 ⋆ im offtab a lot even if i dont have it in my name so im sorry if i dont respond fast or at all ON MY LIFE its not intentional  
 
 ⋆ PLEASE dont talk to me about religion , sexual things ( besides jokes ) , or pop culture  
 
-⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy!
+⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy !
 
-ps i play ponytown on my school laptop.. sites such as patreon, ata, and guns are blocked
+ps i play ponytown on my school laptop . . . sites such as patreon , ata , and guns are blocked </3
