@@ -1,5 +1,6 @@
-![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ff96c5&label=mangled)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=31&pause=1000&color=F7A2CF&width=435&lines=%E2%8B%AE+%E2%80%9Csoon+you'll+look+just+like+me+.+.+.+beautiful+!%E2%80%9D)](https://git.io/typing-svg)  
   
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ff96c5&label=mangled)  
 ![image](https://i.pinimg.com/736x/14/93/67/1493673cfa6a5060f1f62c5d9a50a8db.jpg)  
 ( art by p4rtypaws on pinterest ! )  
 # haii ! byi kinda thing i think !
