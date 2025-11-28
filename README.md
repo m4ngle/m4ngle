@@ -17,4 +17,4 @@
 
 ⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy !
 
-ps i play ponytown on my school laptop . . . sites such as patreon , ata , and guns are blocked </3
+YW SAM I LVOE YOU TOO !!! <3
