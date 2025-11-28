@@ -15,6 +15,11 @@
 
 ⋆ PLEASE dont talk to me about religion , sexual things ( besides jokes ) , or pop culture  
 
-⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy !
+⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy !  
+
+![gif](https://files.catbox.moe/v21qer.gif)
+![gif](https://files.catbox.moe/3gqklh.gif)
+![gif](https://files.catbox.moe/adsx2q.gif)
+![gif](https://files.catbox.moe/t120x4.gif)
 
 YW SAM I LVOE YOU TOO !!! <3
