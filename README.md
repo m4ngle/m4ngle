@@ -20,6 +20,8 @@
 
 ⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy !  
 
-<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/f3a08bec-d0c3-4d12-b350-d91bb1aefb21" /> <img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/94d4ddd6-c366-405f-9e50-424ab22d2dcb" /> 
+<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/f3a08bec-d0c3-4d12-b350-d91bb1aefb21" /> <img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/94d4ddd6-c366-405f-9e50-424ab22d2dcb" />  
+<img width="218" height="359" alt="Untitled814_20251202231949" src="https://github.com/user-attachments/assets/4264a2c0-a747-4804-a4d0-3ae8aa2be913" />  
+my eclipsesona made by sam <3
 
-YW SAM I LVOE YOU TOO !!! <3
+YW SAM I LVOE YOU TOO !!! 
