@@ -1,8 +1,8 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=41567E&width=435&lines=%E2%99%AF+%22AWOOO+!!%22;%E2%99%AF+%22i've+got+a+scent+i'm+tracking+...+%22)](https://git.io/typing-svg)  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=a08cd4&width=435&lines=%E2%99%AF+%22AWOOO+!!%22;%E2%99%AF+%22i've+got+a+scent+i'm+tracking+...+%22)](https://git.io/typing-svg)  
   
-![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=687690&label=+🦴+)  
-<img width="699" height="685" alt="image" src="https://github.com/user-attachments/assets/683a35e5-0fec-4fd0-a138-19ce51a84c1a" />  
-( art by yoaifein on tiktok )
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=604ea0&label=+🦴+)  
+![image](https://i.pinimg.com/736x/25/4c/d0/254cd0c64ad628421156673019236f9c.jpg)  
+( art by jeevawiiqq on tiktok )
 
   
     
