@@ -24,7 +24,7 @@
 ![17647395518315668988296629819262](https://github.com/user-attachments/assets/45ae274e-8f03-4612-b5ff-5e29e2cf5cac)
 ![17647394849968091992510852513940](https://github.com/user-attachments/assets/19551174-10e5-4c7a-8532-647b51dd630f)
 
-<img width="218" height="359" alt="Untitled814_20251202231949" src="https://github.com/user-attachments/assets/4264a2c0-a747-4804-a4d0-3ae8aa2be913" />  
+<img width="218" height="359" alt="Untitled814_20251202231949" src="https://github.com/user-attachments/assets/4264a2c0-a747-4804-a4d0-3ae8aa2be913" />.  
 my eclipsesona made by sam <3
 
 YW SAM I LVOE YOU TOO !!! 
