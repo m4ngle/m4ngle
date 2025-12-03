@@ -1,8 +1,11 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=31&duration=6000&pause=2500&color=F7A2CF&width=435&lines=%E2%8B%AE+%E2%80%9Csoon+you'll+look+just+like+me+.+.+.+beautiful+!%E2%80%9D)](https://git.io/typing-svg)  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=41567E&width=435&lines=%E2%99%AF+%22AWOOO+!!%22;%E2%99%AF+%22i've+got+a+scent+i'm+tracking+...+%22)](https://git.io/typing-svg)  
   
-![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ff96c5&label=mangled)  
-![image](https://i.pinimg.com/736x/14/93/67/1493673cfa6a5060f1f62c5d9a50a8db.jpg)  
-( art by p4rtypaws on pinterest ! )  
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=687690&label=+🦴+)  
+<img width="699" height="685" alt="image" src="https://github.com/user-attachments/assets/683a35e5-0fec-4fd0-a138-19ce51a84c1a" />  
+( art by yoaifein on tiktok )
+
+  
+    
 # haii ! byi kinda thing i think !
   
 ⋆ i am VERY bad at talking to people , not social at all but i love being around others !  
@@ -17,9 +20,6 @@
 
 ⋆ i dislike certain subjects due to associating them with bad people , if u manage to bring up smt ill lyk if im uncomfy !  
 
-![gif](https://files.catbox.moe/v21qer.gif)
-![gif](https://files.catbox.moe/3gqklh.gif)
-![gif](https://files.catbox.moe/adsx2q.gif)
-![gif](https://files.catbox.moe/t120x4.gif)
+<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/f3a08bec-d0c3-4d12-b350-d91bb1aefb21" /> <img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/94d4ddd6-c366-405f-9e50-424ab22d2dcb" /> 
 
 YW SAM I LVOE YOU TOO !!! <3
