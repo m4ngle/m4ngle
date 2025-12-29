@@ -5,10 +5,8 @@
 ![](https://mypillowfort.net/media5/tumblr_86041556e015919d0c6043e0d576020d_c871832c_250.gif)
 ![](https://mypillowfort.net/media5/tumblr_86041556e015919d0c6043e0d576020d_c871832c_250.gif)  
 
-<img width="1271" height="81" alt="ehgmlj" src="https://github.com/user-attachments/assets/7fd45bcc-9ff3-422b-b218-31add80a3bcd" />  
+<img width="1271" height="81" alt="ehgmlj" src="https://github.com/user-attachments/assets/7fd45bcc-9ff3-422b-b218-31add80a3bcd" />ㅤ  
 
-
-  
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=604ea0&label=+🦴+)  
 ![image](https://i.pinimg.com/736x/25/4c/d0/254cd0c64ad628421156673019236f9c.jpg)  
 ( art by jeevawiiqq on tiktok )
