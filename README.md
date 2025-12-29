@@ -10,13 +10,13 @@
   
 ⋆ i'm very bad at talking 2 new ppl , but i love making friends ﹗  
   
-⋆ i may come off as dry due to getting nervous / scared around ppl i don't know ﹗  
+⋆ i may come off as dry due 2 getting nervous / scared around ppl i don't know ﹗  
   
 ⋆ feel free 2 add me if we've cuddled / interacted ﹗  
   
-⋆ almost always off tab , please w2i ﹗  
+⋆ almost always offtab , please w2i ﹗  
 
-⋆ try not to mention anything involving religion , sex , or pop culture when talking to me ﹗  
+⋆ try 2 stay away from anything involving religion , sex , or pop culture when talking 2 me ﹗  
    
 
 ![17647395759977836596527492368666](https://github.com/user-attachments/assets/7f36802b-607f-469e-85bf-68d173ab811c)
