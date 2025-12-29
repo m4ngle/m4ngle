@@ -1,4 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=a08cd4&width=435&lines=%E2%99%AF+%22AWOOO+!!%22;%E2%99%AF+%22i've+got+a+scent+i'm+tracking+...+%22)](https://git.io/typing-svg)  
+![](https://mypillowfort.net/media5/tumblr_4c82128fc6f94d1bd5c9cd097fb4af2c_a3bc70b5_400.gif)
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&duration=2000&pause=10&color=FFDAF6&vCenter=true&multiline=true&repeat=false&width=435&lines=you+and+me+found+love;lost+under+the+shade+%E2%99%A1.)](https://git.io/typing-svg)    
   
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=604ea0&label=+🦴+)  
 ![image](https://i.pinimg.com/736x/25/4c/d0/254cd0c64ad628421156673019236f9c.jpg)  
