@@ -15,9 +15,7 @@
     
 # b4 u int ﹗  
   
-⋆ i'm very bad at talking 2 new ppl , but i love making friends ﹗  
-  
-⋆ i may come off as dry due 2 getting nervous / scared around ppl i don't know ﹗  
+⋆ i'm very bad at talking 2 new ppl , but i love making friends ﹗    
   
 ⋆ feel free 2 add me if we've cuddled / interacted ﹗  
   
