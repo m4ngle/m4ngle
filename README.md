@@ -8,7 +8,8 @@
 <img width="1271" height="81" alt="ehgmlj" src="https://github.com/user-attachments/assets/7fd45bcc-9ff3-422b-b218-31add80a3bcd" />ㅤ  
 
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=604ea0&label=+🦴+)  
-![image](https://i.pinimg.com/736x/25/4c/d0/254cd0c64ad628421156673019236f9c.jpg)  
+<img width="735" height="545" alt="Untitled302_20251231021034" src="https://github.com/user-attachments/assets/c44ac770-b7ee-4c5d-9732-18def5c16ee7" />
+  
 ( art by jeevawiiqq on tiktok )
 
   
