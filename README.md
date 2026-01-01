@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://mypillowfort.net/media5/tumblr_4c82128fc6f94d1bd5c9cd097fb4af2c_a3bc70b5_400.gif)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://mypillowfort.net/media5/tumblr_4c82128fc6f94d1bd5c9cd097fb4af2c_a3bc70b5_400.gif)
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&duration=2000&pause=10&color=FFDAF6&vCenter=true&multiline=true&repeat=false&width=435&lines=%E3%85%A4%D6%B6%D6%B8%D6%A2%E3%85%A4%E3%85%A4ㅤ+you+and+me+found+love;%E3%85%A4%D6%B6%D6%B8%D6%A2%E3%85%A4%E3%85%A4ㅤ+lost+under+the+shade+%E2%99%A1.)](https://git.io/typing-svg)  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&duration=2000&pause=10&color=FFDAF6&vCenter=true&multiline=true&repeat=false&width=435&lines=%E3%85%A4%D6%B6%D6%B8%D6%A2%E3%85%A4%E3%85%A4ㅤ+you+and+me+found+love;%E3%85%A4%D6%B6%D6%B8%D6%A2%E3%85%A4%E3%85%A4ㅤ+lost+under+the+shade+%E2%99%A1.)](https://git.io/typing-svg)  
 
-ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ![](https://mypillowfort.net/media5/tumblr_86041556e015919d0c6043e0d576020d_c871832c_250.gif)
+ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ![](https://mypillowfort.net/media5/tumblr_86041556e015919d0c6043e0d576020d_c871832c_250.gif)
 ![](https://mypillowfort.net/media5/tumblr_86041556e015919d0c6043e0d576020d_c871832c_250.gif)  
 
 <img width="1271" height="81" alt="ehgmlj" src="https://github.com/user-attachments/assets/7fd45bcc-9ff3-422b-b218-31add80a3bcd" />ㅤ  
